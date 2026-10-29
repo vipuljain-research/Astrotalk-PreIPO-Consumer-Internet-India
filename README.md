@@ -1,6 +1,6 @@
 Astrotalk: Pre-IPO Investment Thesis
 
-Independent equity research, financial modeling and valuation** by Vipul Jain
+Independent equity research by Vipul Jain
 Private markets · Consumer internet / faith-tech · Pre-IPO · As of 29 October 2026
 
 Astrotalk — Pre-IPO Research (Consumer Internet)
